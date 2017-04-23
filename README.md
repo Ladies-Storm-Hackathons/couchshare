@@ -29,18 +29,21 @@ Africa
 #### Nairobi
 |Name | Primary Form of Contact | Reasons for Contact | Type of Space Available | Other Details | 
 | :----: | :------: | :--------: | :--------: | :---------: |
-| Aashni Shah | [facebook](https://www.facebook.com/aashnisshah), (http://www.twitter.com/aashnisshah) | Emergency Only | Spare room | I'm usually in Vancouver, but if you're in a pinch you're welcome to stay at my house in Kenya :) |
+| Aashni Shah | [facebook](https://www.facebook.com/aashnisshah), [Twitter](http://www.twitter.com/aashnisshah) | Emergency Only | Spare room | I'm usually in Vancouver, but if you're in a pinch you're welcome to stay at my house in Kenya :) |
 
 North America
 ====
 ## Canada
 #### Alberta
 Calgary
+
 |Name | Primary Form of Contact | Reasons for Contact | Type of Space Available | Other Details | 
 | :----: | :------: | :--------: | :--------: | :---------: |
 | Nandini Thogarapalli | [facebook](https://www.facebook.com/nandini.thogarapalli) | Any | Couch | |
+
 #### British Columbia
 Vancouver
+
 |Name | Primary Form of Contact | Reasons for Contact | Type of Space Available | Other Details | 
 | :----: | :------: | :--------: | :--------: | :---------: |
 | Aashni Shah | [facebook](https://www.facebook.com/aashnisshah), (http://www.twitter.com/aashnisshah) | Any | Couch, blanket and pillow | Downtown, and close to conference spaces |
@@ -50,16 +53,19 @@ Vancouver
 ## United States of America
 #### Texas 
 College Station
+
 |Name | Primary Form of Contact | Reasons for Contact | Type of Space Available | Other Details | 
 | :----: | :------: | :--------: | :--------: | :---------: |
 | Becca Schofield | [facebook](https://www.facebook.com/becca.schofield.58) | Any | extra bedroom/couch (anytime during the ‘17/’18 academic year) | not too far of a drive from the major Texas cities |
 #### Virginia
 Richmond/Charlottesville
+
 |Name | Primary Form of Contact | Reasons for Contact | Type of Space Available | Other Details | 
 | :----: | :------: | :--------: | :--------: | :---------: |
 | Ellen Korcovelos | [facebook](https://www.facebook.com/ellen.korcovelos) | Emergency only for sleeping over | private room or couch | I have a dog and live with my fiance (also in CS in case you need interview help!). I will drive to pick you up if you feel unsafe/need it (up to an hour away from Richmond). Prefer emergency only for sleeping over, but if you’re in RVA/Cville and want someone to show you around, hit me up :)  |
 #### Washington
 Seattle
+
 |Name | Primary Form of Contact | Reasons for Contact | Type of Space Available | Other Details | 
 | :----: | :------: | :--------: | :--------: | :---------: |
 | Laura Beth Fulton | [facebook](https://www.facebook.com/laurabethfulton) | Any | place w/couch (this summer anytime between May 22 and Aug 10) |  Happy to help in an emergency or if you’re traveling to Seattle and need a place I like company  |
