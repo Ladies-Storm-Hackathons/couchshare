@@ -51,12 +51,33 @@ Vancouver
 ## Mexico
 
 ## United States of America
+#### California 
+San Francisco
+
+|Name | Primary Form of Contact | Reasons for Contact | Type of Space Available | Other Details | 
+| :----: | :------: | :--------: | :--------: | :---------: |
+| Shriya Nevatia | [facebook](https://www.facebook.com/snevatia) | Any | Large comfy couch in living room, extra mattress also available, sheets & pillows included. Apt with 4 women in Nob Hill!  |
+
+#### Tennesee
+Nashville
+
+|Name | Primary Form of Contact | Reasons for Contact | Type of Space Available | Other Details | 
+| :----: | :------: | :--------: | :--------: | :---------: |
+| Morgan Oh | [facebook](https://www.facebook.com/morgan.garfield) | Any | I live on campus but if you’re fine with an air bed or something, let me know! Also, always down to show people around Nashville or a quick meet up.|
+
 #### Texas 
 College Station
 
 |Name | Primary Form of Contact | Reasons for Contact | Type of Space Available | Other Details | 
 | :----: | :------: | :--------: | :--------: | :---------: |
 | Becca Schofield | [facebook](https://www.facebook.com/becca.schofield.58) | Any | extra bedroom/couch (anytime during the ‘17/’18 academic year) | not too far of a drive from the major Texas cities |
+
+Dallas
+|Name | Primary Form of Contact | Reasons for Contact | Type of Space Available | Other Details | 
+| :----: | :------: | :--------: | :--------: | :---------: |
+| Kathryn Reagan | [facebook](https://www.facebook.com/nyrhtakk) | Any | Offering: couch or air mattress in my living room with a loving, feisty cat to cuddle | not too far of a drive from the major Texas cities | Would love to show you around, or help you out if you're in a bind |
+
+
 #### Virginia
 Richmond/Charlottesville
 
