@@ -73,6 +73,7 @@ College Station
 | Becca Schofield | [facebook](https://www.facebook.com/becca.schofield.58) | Any | extra bedroom/couch (anytime during the ‘17/’18 academic year) | not too far of a drive from the major Texas cities |
 
 Dallas
+
 |Name | Primary Form of Contact | Reasons for Contact | Type of Space Available | Other Details | 
 | :----: | :------: | :--------: | :--------: | :---------: |
 | Kathryn Reagan | [facebook](https://www.facebook.com/nyrhtakk) | Any | Offering: couch or air mattress in my living room with a loving, feisty cat to cuddle | not too far of a drive from the major Texas cities | Would love to show you around, or help you out if you're in a bind |
