@@ -58,6 +58,13 @@ San Francisco
 | :----: | :------: | :--------: | :--------: | :---------: |
 | Shriya Nevatia | [facebook](https://www.facebook.com/snevatia) | Any | Large comfy couch in living room, extra mattress also available, sheets & pillows included. Apt with 4 women in Nob Hill!  |
 
+#### Florida
+Orlando
+
+|Name | Primary Form of Contact | Reasons for Contact | Type of Space Available | Other Details | 
+| :----: | :------: | :--------: | :--------: | :---------: |
+| Rajene Harris | [facebook](https://www.facebook.com/rajene.harris) | Any | I live in a house, not too far from UCF's campus. I wouldn't mind sharing my couch for someone interviewing, or going to GHC this year!(2019) I do have male roomates, and a beagle.|
+
 #### Tennesee
 Nashville
 
